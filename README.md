@@ -1,2 +1,2 @@
 # hello-world
-ideas
+ideas, becuase i think too much
